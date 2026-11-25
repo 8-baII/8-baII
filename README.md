@@ -1,5 +1,5 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=elanourr&color=C04000&label=⠀⠀humans⠀of⠀rokkenjima⠀island⠀⠀)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="800" height="484" alt="1000196730" src="https://github.com/user-attachments/assets/60dcbb9c-56b7-493b-a7d3-d103c920db64" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=elanourr&color=DADFEB&label=⠀⠀worshippers⠀⠀)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="2408" height="1720" alt="1000213278" src="https://github.com/user-attachments/assets/3e3e6a6d-f6b3-4367-a369-02290cdc2094" />
 
 
 
